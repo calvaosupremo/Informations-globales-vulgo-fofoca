@@ -1,0 +1,1 @@
+# Informations-globales-vulgo-fofoca
